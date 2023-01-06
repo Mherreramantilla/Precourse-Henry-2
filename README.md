@@ -1,2 +1,2 @@
-# Precourse-Henry-2
-proyecto creado para practicar en prepcourse henry
+precourse henry practicas par amejorara mi rendimiento 
+practica de codeo perfeccionando 
